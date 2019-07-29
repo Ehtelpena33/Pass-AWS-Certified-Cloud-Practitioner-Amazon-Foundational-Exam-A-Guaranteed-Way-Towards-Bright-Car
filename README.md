@@ -1,0 +1,1 @@
+# Pass-AWS-Certified-Cloud-Practitioner-Amazon-Foundational-Exam-A-Guaranteed-Way-Towards-Bright-Car
